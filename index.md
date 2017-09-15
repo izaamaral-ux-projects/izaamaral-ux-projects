@@ -1,6 +1,6 @@
 
 
-## Izabela Amaral Escanhoela - UX Researcher
+## Izabela Amaral - UX Researcher
 
 
 
